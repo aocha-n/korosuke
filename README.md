@@ -1,2 +1,0 @@
-# korosuke
-korosukeのページ
